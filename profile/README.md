@@ -2,9 +2,9 @@
 
 Yono Games offers a unique blend of entertainment and patriotism with its captivating mobile application.
 
-**Download Link: ⬇️ [Yono Games Hack](https://t.me/i91clubmodapk)**
+**Download Link: ⬇️ [Yono Games Hack](https://rpy.club/lm/o0pDhg5pqb)**
 
-**Download Link: ⬇️ [Yono Games Hack](https://t.me/i91clubmodapk)**
+**Download Link: ⬇️ [Yono Games Hack](https://rpy.club/lm/o0pDhg5pqb)**
 
 This innovative platform celebrates the vibrant colors of the Indian flag while providing users with an engaging gaming experience. Let's explore what sets Yono Games apart:
 
